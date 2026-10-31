@@ -1,1 +1,0 @@
-# Shani Kumar Gupta Portfolio
